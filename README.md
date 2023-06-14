@@ -6,3 +6,13 @@ ID ACTIVE
 
 1Killer0Killer4Killer3Killer2KilleruKiller0Killer_KilleraKiller4Killer3Killer2
 15days @nynyzi
+
+1Killer0Killer1Killer8Killer7KilleruKiller0Killer_KilleraKiller1Killer8Killer7
+@T_bag12
+Tool 20 days
+
+14/06/2023
+
+end
+
+2/07/2023
